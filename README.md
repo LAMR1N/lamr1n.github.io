@@ -1,1 +1,1 @@
-# lamr1n.github.io
+# LAMR1N.github.io
